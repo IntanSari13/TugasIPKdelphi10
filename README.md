@@ -1,0 +1,2 @@
+# TugasIPKdelphi10
+a
